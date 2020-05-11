@@ -1,2 +1,4 @@
 # hello-lin
-this is my first ku
+哲df
+
+now  i will
